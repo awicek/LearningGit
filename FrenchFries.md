@@ -1,0 +1,1 @@
+This is simle recipe how to cook french fries.
